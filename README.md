@@ -9,3 +9,7 @@ After refreshments we collected our welcome kits and all students of EE,CE,ECE,M
 Chief guest- Maheshinder Singh Grewal, Ex cabinet minister, Punjab and member of Nankana Sahib Education Trust, introduced us about how the initiative was took to start the institution 70 years ago. He also highlighted the necessity of good communication skills to achieve success. We were taught a lesson to always respect and obey our parents and to have faith in god and also in ourself. 
 
 We were given time for exploring our respective departments. First day was a wonderful experience of the college, which was a stair towards success. 
+
+# Day-2
+## 1st August, 2025
+
