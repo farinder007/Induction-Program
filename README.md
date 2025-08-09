@@ -14,4 +14,4 @@ We were given time for exploring our respective departments. First day was a won
 ## 1st August, 2025
 College journey of second day started which was filled with learning and interaction.
 
-Our first lecture of the day was on Universal Human Values by Priya Darshni Mam. Lecture was introduced as a way to happiness. We discussed about our life goals and the ways to achieve them. 
+Our first lecture of the day was on Universal Human Values by Priya Darshni Mam. Lecture was introduced as a way to happiness. We discussed about our life goals and the ways to achieve them. We were made focused towards our present efforts - studying and the reason that why should we do efforts - to be prosperous and happy. The session provided us the enlightenment on how we can achieve true happiness. Students shared their problems and got solutions to their problems in life. 
