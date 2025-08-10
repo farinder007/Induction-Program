@@ -32,6 +32,8 @@ Our learning was further increased during the session. Our senior - Gautam Murri
 
 Following this session, we attended a lecture on Universal Human Values (UHV) by Mam Priya Darshni, which focused on understanding the essence of relationships. The key was that relationships are not only interactions but connections between twoselves. We learnt that relationships can be held on with the help of right understanding.We learnt about the feelings because feelings form the foundation of any relationship.This session provided profound insights into how we perceive and nurture our relationships without exploiting them. 
 
+Then After a lunch break, we attended classes. At first peer-to-peer class was there, where our seniors introduced us with C++, a programming language and gave its overview. The next English class was conducted and we were asked to introduce ourselves. Our teacher motivated us to speak and build confidence. 
+
 # Day-4
 ## 5th August, 2025
 
