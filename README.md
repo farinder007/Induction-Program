@@ -41,7 +41,7 @@ On the fourth day of the induction program the timings were late. Our session st
 
 Peer-to-peer classes were conducted at the beginning and we were made familiar with the college, its activities, rules, societies, clubs and the examination system.
 
-Secondly, there held a lecture on millets by Shaffy Makkar. She introduced millets as super food. She told us the importance of millets in our daily lives and the work of millet as a medicine. She gave us knowledge about how the millets work for different body parts and keep us healthy. As our general taste, we are unable to eat millets, so she also taught us the new tricks to cook millets and include in our daily diets as tasty and essential meal. The session was interesting as well as interactive as Shaffy Makkar opened our minds towards healthy eating and keeping ourselves and our family members healthy. 
+Secondly, there held a lecture on millets by Mrs.Shaffy Makkar. She introduced millets as super food. She told us the importance of millets in our daily lives and the work of millet as a medicine. She gave us knowledge about how the millets work for different body parts and keep us healthy. As our general taste, we are unable to eat millets, so she also taught us the new tricks to cook millets and include in our daily diets as tasty and essential meal. The session was interesting as well as interactive as Shaffy Makkar opened our minds towards healthy eating and keeping ourselves and our family members healthy. 
 
 # Day-5
 ## 6th August, 2025
