@@ -50,3 +50,5 @@ In the beginning of the session, Dr. Parminder Singh, Dean-Student Welfare, intr
 
 Next, the session was followed by Mr. Manpreet Singh on the topic "Fitness for Engineers". He is a bodybuilder in real life. He told about physical fitness and the students interacted with him and cleared their doubts regarding physical fitness. He advised to use good quality of proteins but to continue good and healthy regular diet at first. He also told that regular exercise will make a person patient and the person will be less aggressive and stress will be also reduced. 
 
+Further, our senior from NCC, Tanmay Kaushal, encouraged us to be the part of armed forces and introduced us with the opportunities one gets after joining NCC (National Cadet Corps). Then, 
+
