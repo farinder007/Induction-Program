@@ -18,6 +18,8 @@ Our first lecture of the day was on Universal Human Values by Priya Darshni Mam.
 
 The next session of the day was conducted by Dr.Arvind Dhingra. He focused on the topic of Personality Development and started interacting with us. He called seven boys and seven girls upon the stage to play a team game which helped us to learn the value of teamwork and coordination. He also introduced us to the various societies and clubs of engineering. 
 
+After a brief lunch break, we returned for english and maths test The test covered everything we've learned so far, and it was a great opportunity to assess our progress.It was feeling challenging but our seniors encouraged us. 
+
 # Day-3
 ## 4th August, 2025
 Third day of the induction program was full of learning experiences. College comprises of different clubs and societies which include both extra curricular activities and learning packages. 
