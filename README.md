@@ -58,3 +58,9 @@ After getting refreshed, we gathered in the classroom for physics class. Mrs.Ama
 ## 7th August, 2025
 
 Our day started with the Physics lecture. Mrs. Komalpreet Kaur discussed the practicals which will be performed by us during the semester. We also discussed few terms regarding the topic LASER. Next lecture was conducted by Mrs. Sandeep Kaur Gill. She discussed about the topics we studied till 12th standard. We discussed especially the topic- derivatives. The lectures were quite interesting as well as interactive. 
+
+
+
+The day concluded with a session by Dr. Jasvir Singh Grewal, the coordinator of the NSS(national service scheme), who outlined the noble goals and activities of the NSS society at our college. The NSS aims to engage students in community service. Participation in NSS offers numerous benefits, including personality development,employment opportunities to engage in national integration camps and adventure programs. Through these activities, students develop leadership qualities, a democratic attitude, and a deep sense of involvement in nation-building.
+
+
