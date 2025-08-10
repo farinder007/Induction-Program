@@ -31,3 +31,7 @@ At next, we were introduced with the learning of Github, a vital tool for versio
 Our learning was further increased during the session. Our senior - Gautam Murria, student of 4th year(mechanical engineering), introduced us with the topic MOTORSPORTS - a new developing branch for test lab engineers. This topic opened our minds towards motorcars and their designing. He discussed three M's in Motorsports - minds,machines and milliseconds. He told us the value of concentration and presence of mind during the work in Motorsports. 
 
 Following this session, we attended a lecture on Universal Human Values (UHV) by Mam Priya Darshni, which focused on understanding the essence of relationships. The key was that relationships are not only interactions but connections between twoselves. We learnt that relationships can be held on with the help of right understanding.We learnt about the feelings because feelings form the foundation of any relationship.This session provided profound insights into how we perceive and nurture our relationships without exploiting them. 
+
+# Day-4
+## 5th August, 2025
+
