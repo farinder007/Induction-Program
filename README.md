@@ -23,3 +23,7 @@ The next session of the day was conducted by Dr.Arvind Dhingra. He focused on th
 Third day of the induction program was full of learning experiences. College comprises of different clubs and societies which include both extra curricular activities and learning packages. 
 
 At first, causmic club members introduced us with the fantastic activities performed and events organised by the club. The team members and encouraged us for the active participation in the clubs and also introduced us with the opportunities provided by causmic club to its team members. 
+
+At next, we were introduced with the learning of Github, a vital tool for version control and collaboration. We were given a task to write a repository about the induction program and during the session we were made familiar with the steps of creating a repository and its editing. It was a step for building new developers. 
+
+Our learning was further increased during the session. Our senior-G
