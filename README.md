@@ -46,3 +46,7 @@ Secondly, there held a lecture on millets by Mrs.Shaffy Makkar. She introduced m
 # Day-5
 ## 6th August, 2025
 
+In the beginning of the session, Dr. Parminder Singh, Dean-Student Welfare, introduced us the college and made us familiar with the facilities provided by the college to the students. He also discussed about the scholarships given to the students by the college. Sir focused on the value of hard work and importance of our B.tech 4years for future career. 
+
+Next, the session was followed by Mr. Manpreet Singh on the topic "Fitness for Engineers".
+
