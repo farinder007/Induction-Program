@@ -63,4 +63,8 @@ Our day started with the Physics lecture. Mrs. Komalpreet Kaur discussed the pra
 
 The day concluded with a session by Dr. Jasvir Singh Grewal, the coordinator of the NSS(national service scheme), which outlined the noble goals and activities of the NSS at our college. The NSS aims to engage students in community service. Participation in NSS offers personality development,opportunities to engage in camps. Students develop  a democratic attitude, and a deep sense of involvement in nation-building.Students are also provided stage to show their talent.Our seniors also performed funny tricks on the stage and also recited shabad during the session. Sir encouraged us to join NSS so that the collective hands could make the environment clean and healthy and safe for all living beings. 
 
+# Day-7
+## 8th August, 2025
+
+
 
