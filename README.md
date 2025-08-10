@@ -59,7 +59,7 @@ After getting refreshed, we gathered in the classroom for physics class. Mrs.Ama
 
 Our day started with the Physics lecture. Mrs. Komalpreet Kaur discussed the practicals which will be performed by us during the semester. We also discussed few terms regarding the topic LASER. Next lecture was conducted by Mrs. Sandeep Kaur Gill. She discussed about the topics we studied till 12th standard. We discussed especially the topic- derivatives. The lectures were quite interesting as well as interactive. 
 
-
+Next, in the auditorium the session was conducted by Prof. Lakhvir Singh Khanna, Head of centre of multi faceted learning at college. He discussed with us the skills CML provides to learn. Except, sports and cultural works, CML works on helping students achieve their best and work in a job-like environment. He also opened our minds upon the online courses provided by IITS for the students to learn. He showed us the best opportunities available for engineers which we can take on through NPTEL and CML to design our future more bright. 
 
 The day concluded with a session by Dr. Jasvir Singh Grewal, the coordinator of the NSS(national service scheme), which outlined the noble goals and activities of the NSS at our college. The NSS aims to engage students in community service. Participation in NSS offers personality development,opportunities to engage in camps. Students develop  a democratic attitude, and a deep sense of involvement in nation-building.Students are also provided stage to show their talent.Our seniors also performed funny tricks on the stage and also recited shabad during the session. Sir encouraged us to join NSS so that the collective hands could make the environment clean and healthy and safe for all living beings. 
 
