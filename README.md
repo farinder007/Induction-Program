@@ -56,3 +56,5 @@ After getting refreshed, we gathered in the classroom for physics class. Mrs.Ama
 
 # Day-6
 ## 7th August, 2025
+
+Our day started with the Physics lecture. Mrs. Komalpreet Kaur discussed the practicals which will be performed by us during the session. We also discussed few terms regarding the topic LASER. Next lecture was conducted by Mrs. Sandeep Kaur Gill. She discussed about the topics we studied till 12th standard. We discussed especially the topic- derivatives. The lectures were quite interesting as well as interactive. 
