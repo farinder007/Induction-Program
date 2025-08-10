@@ -26,4 +26,4 @@ At first, causmic club members introduced us with the fantastic activities perfo
 
 At next, we were introduced with the learning of Github, a vital tool for version control and collaboration. We were given a task to write a repository about the induction program and during the session we were made familiar with the steps of creating a repository and its editing. It was a step for building new developers. 
 
-Our learning was further increased during the session. Our senior-G
+Our learning was further increased during the session. Our senior - Gautam Murria, student of 4th year(mechanical engineering), introduced us with the topic MOTORSPORTS - a new developing branch for test lab engineers. This topic opened our minds towards motorcars and their designing. He discussed three M's in Motorsports - minds,machines and milliseconds. He told us the value of concentration and presence of mind during the work in Motorsports. 
