@@ -37,3 +37,6 @@ Then After a lunch break, we attended classes. At first peer-to-peer class was t
 # Day-4
 ## 5th August, 2025
 
+On the fourth day of the induction program the timings were late. Our session started during the afternoon time. 
+Peer-to-peer classes were conducted at the beginning and we were made familiar with the college, its activities, rules, societies, clubs and the examination system.
+Secondly, there held a lecture on millets
