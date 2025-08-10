@@ -15,3 +15,5 @@ We were given time for exploring our respective departments. First day was a won
 College journey of second day started which was filled with learning and interaction.
 
 Our first lecture of the day was on Universal Human Values by Priya Darshni Mam. Lecture was introduced as a way to happiness. We discussed about our life goals and the ways to achieve them. We were made focused towards our present efforts - studying and the reason that why should we do efforts - to be prosperous and happy. The session made us understand the true meaning of happiness and provided us the enlightenment on how we can achieve true happiness. Students shared their problems and got solutions during the discussion. 
+
+The next session of the day was conducted by Dr.Arvind Dhingra. He focused on the topic of Personality Development and started interacting with us. He called seven boys and seven girls upon the stage to play a team game which helped us to learn the value of teamwork and coordination. He also introduced us to the various societies and clubs of engineering. 
