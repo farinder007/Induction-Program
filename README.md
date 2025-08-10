@@ -22,4 +22,4 @@ The next session of the day was conducted by Dr.Arvind Dhingra. He focused on th
 ## 4th August, 2025
 Third day of the induction program was full of learning experiences. College comprises of different clubs and societies which include both extra curricular activities and learning packages. 
 
-At first causmic club members introduced us with the fantastic activities performed and events organised by the club. The team members and encouraged us for the active participation in the clubs and also introduced us with the opportunities provided by causmic club to its team members. 
+At first, causmic club members introduced us with the fantastic activities performed and events organised by the club. The team members and encouraged us for the active participation in the clubs and also introduced us with the opportunities provided by causmic club to its team members. 
